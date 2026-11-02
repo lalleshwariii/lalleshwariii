@@ -1,6 +1,7 @@
 ![](https://file.garden/aVv63DlleiJPIk3x/stan1)
 
-
+how people feel after copying ur WHOLE pony, but then change one part
+![](https://file.garden/aVv63DlleiJPIk3x/thumbsup)
 <!--
 **lalleshwariii/lalleshwariii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
